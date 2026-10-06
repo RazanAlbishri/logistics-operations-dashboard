@@ -130,4 +130,4 @@ Revenue holds steady at about **$99–100M per year**, with monthly revenue movi
 
 ---
 
-**Author:** [Your Name] · [LinkedIn](your-linkedin-url)
+**Author:** [Razan Albishri] · [LinkedIn]([your-linkedin-url](https://www.linkedin.com/in/razan-albishri))
